@@ -1,2 +1,2 @@
 # SummerProject2018
-Where Neel and Keshav make something lit
+Where Neel and Keshav make something in the kitchen
